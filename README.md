@@ -1,0 +1,1 @@
+Hello everyone My name is Anyamanee or An. I'm a benginer who learning and peaticing about coding that tech by my brother Aiyaruch. I will try my best!
