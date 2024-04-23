@@ -1,6 +1,6 @@
 **Hello! My name is Anyamanee.** 😊
 ===========
-#### I'm a beginner 🐣 who is learning and practicing coding that tech with my brother **Aiyaruch.** I will try my best!!💪🏻
+#### I'm a beginner 🐣 who is learning and practicing coding that tech with my brother [<u>Aiyaruch.</u>](https://github.com/aiyaruch1320) I will try my best!!💪🏻
 ### let' s know me more 🙋🏻‍♀️
 1. I am 22 years old, graduated from CMU majoring in Facuty of Hunmanities.
 2. My lacation is Chiang Mai and I am planing to move to Bangkok soon.
